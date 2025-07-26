@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **zmzahidhasan181@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1unvwBb8W30IvAQmRE_Vhodr-5tqZCVqW/edit?pli=1](https://docs.google.com/document/d/1unvwBb8W30IvAQmRE_Vhodr-5tqZCVqW/edit?pli=1)
+- 📄 Know about my experiences [resume CV](https://docs.google.com/document/d/1zSRaLOPcRy1WzsOGr7WWQKDIO2CQqinr8_vhF3R76Nw/edit?tab=t.0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
